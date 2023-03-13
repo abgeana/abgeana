@@ -1,1 +1,1 @@
-Waiting for a vim emoji to be created. 😒
+Waiting for a vim emoji to be created.
